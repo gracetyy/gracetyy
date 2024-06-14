@@ -3,7 +3,7 @@
 
 <div align="right">
   
-[Click here to Shake 👋](https://www.youtube.com/watch?v=dQw4w9WgXcQ/ "Click to Shake") |
+[Click here to Shake 👋](https://youtu.be/xvFZjo5PgG0?si=I3wVJE5gi-aMvPk0/ "Click to Shake") |
 :---:|
 </div>
 
